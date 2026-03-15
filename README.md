@@ -1,1 +1,2 @@
-1. Fadhli 2.Fadhli
+1. Fadhli
+6. meja belajar
